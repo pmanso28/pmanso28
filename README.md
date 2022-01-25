@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @pmanso28;
+- 👀 I’m interested in videogames and cybersecurity;
+- 🌱 I’m currently learning another language and expanding my knowledge on computers;
+- 💞️ I don't feel confident to collaborate in nothing at the moment;
+- 📫 Reach me via discord Typhoon#3788, I'm always online there.
