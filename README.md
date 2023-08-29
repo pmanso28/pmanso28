@@ -3,3 +3,7 @@
 - 🌱 I’m currently learning another language and expanding my knowledge on computers;
 - 💞️ I don't feel confident to collaborate in nothing at the moment;
 - 📫 Reach me via discord Typhoon#3788, I'm always online there.
+- 📕 Native Portuguese speaker
+- 📗 Advanced English (I plan on taking TOEFL to get an accurate measurement later on.)
+- 📘 Good Spanish (I unterstand very well what is being said, but making phrases is still hard to me.)
+- 📙 Basic Japanese (Started Learning a little while ago.)
