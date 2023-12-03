@@ -5,5 +5,5 @@
 - 📫 Reach me via discord Typhoon#3788, I'm always online there.
 - 📕 Native Portuguese speaker
 - 📗 Advanced English (I plan on taking TOEFL to get an accurate measurement later on.)
-- 📘 Good Spanish (I unterstand very well what is being said, but making phrases is still hard to me.)
+- 📘 Intermediate Spanish (I unterstand very well what is being said, but making phrases is still hard to me.)
 - 📙 Basic Japanese (Started Learning a little while ago.)
