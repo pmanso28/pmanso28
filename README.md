@@ -4,7 +4,7 @@
 - 💞️ As time passes, I'm getting more confident about my skills, so I would love to collaborate in a project to learn more;
 - 📫 Reach me via discord Typhoon#3788, I'm always online there.
 - 📕 Native Portuguese speaker
-- 📗 C2 English(As per [EF SET](https://www.efset.org/cert/Rsiwxf))
+- 📗 C2 English(As per [EF SET](https://www.efset.org/cert/Rsiwxf) and NINTER-PE)
 - 📘 Intermediate Spanish (I unterstand very well what is being said, but forming phrases is still hard to me.)
 - 📙 Basic Japanese (Started Learning a little while ago.)
 
